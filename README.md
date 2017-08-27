@@ -1,4 +1,7 @@
 # Galaxy
 I Love Galaxy
 
-I Love :coffee: :pizza:, and :smile:
+Earth
+Moon
+Sun
+and Everythings in galaxy
